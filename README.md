@@ -1,5 +1,4 @@
 <p align="center">
-  <img src="https://c.tenor.com/0ELfbGTX7YUAAAAC/tenor.gif" alt="boykisser">
+  <img src="https://i.imgur.com/8wpX6n5.gif" alt="ida pro 9.1">
 </p>
-<h2 align="center">this is FLIPING insane!!!!</h2>
 <!-- if you are here you are a femboy 💗-->
